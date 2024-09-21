@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @123IandU
+- 👀 I’m interested in Coding and hoping to join you to make a great job.
+- 🫣 I'm an Asperger.
+- 📫 E-mail:2212977545@qq.com
+- ⚡ Fun fact: Swimming
